@@ -1,5 +1,5 @@
 - Centaur (crossed out)
-- MonK
+- Monk
 - Son of Clan Leaders - Wants to be more than - Just thier son
 - Clan
 	- Worth hierarchy
