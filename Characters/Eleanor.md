@@ -1,0 +1,3 @@
+- Former Clan leader daughter
+- Very Capable Scout/Archer
+- Wishes the best for Isaac even if she does not agree that he should have left

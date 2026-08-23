@@ -1,0 +1,3 @@
+- Hates that Isaac left
+- Some small part of him hopes he will fail and return home to him and Eleanor.
+- Loves Isaac in his own way but thinks he is misguided.

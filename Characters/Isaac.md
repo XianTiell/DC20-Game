@@ -1,4 +1,4 @@
-- Centaur (crossed out)
+- Centaur
 - Monk
 - Son of Clan Leaders - Wants to be more than - Just thier son
 - Clan
@@ -11,11 +11,5 @@
     - Would like to remedy relations/views of other races within clan
 - Mother
     - [[Eleanor]]
-    - Former Clan leader daughter
-    - Very Capable Scout/Archer
-    - Wishes the best for Isaac even if she does not agree that he should have left
 - Father
     - [[Toth]]
-    - Hates that Isaac left
-    - Some small part of him hopes he will fail and return home to him and Eleanor.
-    - Loves Isaac in his own way but thinks he is misguided.

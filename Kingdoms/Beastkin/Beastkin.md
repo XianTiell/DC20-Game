@@ -1,0 +1,1 @@
+Nomadic clans of [[Beastkin]] that rarely trust humans except the few that are not considered outsiders.
