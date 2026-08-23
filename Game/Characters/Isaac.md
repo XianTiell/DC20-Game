@@ -1,0 +1,21 @@
+- Centaur (crossed out)
+- MonK
+- Son of Clan Leaders - Wants to be more than - Just thier son
+- Clan
+	- Worth hierarchy
+    - Meet every 5 years - [[Great Gathering]]
+    - Made of "Beastkin"
+    - Nomadic in nature
+- Pilgrimage
+    - Trying to find a sense of self within clan
+    - Would like to remedy relations/views of other races within clan
+- Mother
+    - [[Eleanor]]
+    - Former Clan leader daughter
+    - Very Capable Scout/Archer
+    - Wishes the best for Isaac even if she does not agree that he should have left
+- Father
+    - [[Toth]]
+    - Hates that Isaac left
+    - Some small part of him hopes he will fail and return home to him and Eleanor.
+    - Loves Isaac in his own way but thinks he is misguided.
